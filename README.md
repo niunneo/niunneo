@@ -19,6 +19,4 @@
 
 [<img width="180" height="150" alt="atabook (1)" src="https://github.com/user-attachments/assets/1b2850cd-0bc6-4300-bda9-56c559258344" />](https://niunneo-.atabook.org) <img width="130" height="160" alt="image - 2026-07-07T114912 767" src="https://github.com/user-attachments/assets/92a21604-51a1-4c7b-8aeb-db666f445e78" /> [<img width="180" height="150" alt="gunslol (1)" src="https://github.com/user-attachments/assets/2ca4d30c-1ffb-41e2-8969-14e8819bb999" />](https://guns.lol/niunneo) <img width="130" height="160" alt="image - 2026-07-07T124546 262" src="https://github.com/user-attachments/assets/f7c913ad-8ff8-409d-a302-3b3288b01bf0" /> <img width="200" height="150" alt="strawpage (1)" src="https://github.com/user-attachments/assets/95e61b0c-942e-4b10-b2b4-707764cb5ecb" />
 
----
-
-<img width="1000" height="544" alt="image (55)" src="https://github.com/user-attachments/assets/4283e195-9d2f-482e-8305-41c92e844dc5" />
+merendíyyanoeditomás
