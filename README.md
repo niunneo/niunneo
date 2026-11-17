@@ -1,6 +1,6 @@
 <img width="1000" height="840" alt="image (75)" src="https://github.com/user-attachments/assets/050c1239-3540-4c91-b494-2c10e0e8514d" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Carattere&size=50&duration=4000&pause=2000&color=0066cc&center=true&vCenter=true&width=1000&lines=“𝐈𝐭+𝐡𝐚𝐬+𝐞𝐲𝐞𝐬+𝐭𝐡𝐚𝐭+𝐜𝐚𝐧+𝐬𝐞𝐞+𝐭𝐡𝐫𝐨𝐮𝐠𝐡+𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠.;𝐈𝐭+𝐬𝐩𝐨𝐭𝐬+𝐚𝐧𝐝+𝐜𝐚𝐩𝐭𝐮𝐫𝐞𝐬+𝐩𝐫𝐞𝐲;𝐡𝐢𝐝𝐢𝐧𝐠+𝐛𝐞𝐡𝐢𝐧𝐝+𝐨𝐛𝐣𝐞𝐜𝐭𝐬.”)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Carattere&size=50&duration=4000&pause=2000&color=0066cc&center=true&vCenter=true&width=1000&lines=“𝐈𝐭+𝐡as+𝐞𝐲𝐞𝐬+𝐭𝐡𝐚𝐭+𝐜𝐚𝐧+𝐬𝐞𝐞+𝐭𝐡𝐫𝐨𝐮𝐠𝐡+𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠.;𝐈𝐭+𝐬𝐩𝐨𝐭𝐬+𝐚𝐧𝐝+𝐜𝐚𝐩𝐭𝐮𝐫𝐞𝐬+𝐩𝐫𝐞𝐲;𝐡𝐢𝐝𝐢𝐧𝐠+𝐛𝐞𝐡𝐢𝐧𝐝+𝐨𝐛𝐣𝐞𝐜𝐭𝐬.”)](https://git.io/typing-svg)
 
 <img align="left" width="274" height="288" alt="image (54)" src="https://github.com/user-attachments/assets/9159d477-5e40-4d56-862a-b2d057346f31" />
 
